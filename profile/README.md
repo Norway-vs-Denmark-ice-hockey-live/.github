@@ -1,3 +1,15 @@
+[🔴LIVE=►✅👉 Norway vs Denmark ice hockey live](https://worldsportshd.com/sports2/)
+-
+[🔴LIVE=►✅👉 Norway vs Denmark ice hockey live](https://worldsportshd.com/sports2/)
+-
+[🔴LIVE=►✅👉 Norway vs Denmark ice hockey live](https://worldsportshd.com/sports2/)
+-
+[🔴LIVE=►✅👉 Norway vs Denmark ice hockey live](https://worldsportshd.com/sports2/)
+-
+[🔴LIVE=►✅👉 Norway vs Denmark ice hockey live](https://worldsportshd.com/sports2/)
+-
+
+
 Norway is playing against Denmark on Apr 27, 2024 at 12:00:00 PM UTC.
 
 This game is part of Int. Friendly Games.
